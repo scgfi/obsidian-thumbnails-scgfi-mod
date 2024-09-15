@@ -1,0 +1,1 @@
+# obsidian-thumbnails-scgfi-mod
